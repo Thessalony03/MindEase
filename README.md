@@ -81,7 +81,7 @@ Built by Thessalony Dudde — AI & Conversational Design Enthusiast.
 ## 🤝 Connect
 
 LinkedIn : https://www.linkedin.com/in/thessalony-dudde-533636243/ 
-[Notion Portfolio](YOUR_NOTION_LINK)
+Notion Portfolio: (YOUR_NOTION_LINK)
 
 
 
